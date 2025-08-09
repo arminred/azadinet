@@ -4,7 +4,7 @@
 
 ## ویدئوی آموزشی از امینیYT (در یوتیوب با فیلترشکن):
 https://youtu.be/nt5dITyEdiM?si=4QyRjzttBxG7p3qX
-
+https://t.me/asrnovin_ir
 ## صفحه ی رسمی پروژه:
 https://irdevs.sbs
 https://t.me/irdevs_dns
